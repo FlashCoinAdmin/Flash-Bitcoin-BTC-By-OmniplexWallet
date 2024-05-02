@@ -1,2 +1,18 @@
 # Flash-Bitcoin-BTC-By-OmniplexWallet
-Flash Bitcoin Generator By OmniplexWallet Software Owner 
+Flash Bitcoin Generator By OmniplexWallet Software Owner 2024
+
+Hey! hello team, today I am doing a little demo on the OmniplexWallet software by sending only 1 BTC Flash to my address
+
+Here is the software with a 1 month license with 5000 BTC flash Available (Business Pack)
+
+Telegram: @OmniplexWallet
+
+Our Channel: @OmniplexWalletc
+
+Email: omniplexwallet@gmail.com
+
+Website: https://www.omniplexwallet.com
+
+Available in all countries (USA, India, Indonesia, Asia, Germany, France, Italy, Europe, Egypt, Algeria, Tunisia, Africa, Australia...)
+
+Copyright © 2024 OmniplexWallet (Legit Product) All Rights Reserved
